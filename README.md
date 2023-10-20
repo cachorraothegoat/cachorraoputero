@@ -1,1 +1,1 @@
-# cachorraoputero bombareen perú
+# cachorraoputero bombareen perú y a Perukistan
